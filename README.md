@@ -1,2 +1,2 @@
 # daKang
-daKangSport help people will and happy
+daKangSport help people well and happy
