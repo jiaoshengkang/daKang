@@ -8,4 +8,4 @@ daKangSport help people well and happy
 
 在这个伟大的时代，人与自然和谐相处，创造出更多的《小幸运》！
 
---JSK
+--JSK--
